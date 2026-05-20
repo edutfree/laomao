@@ -1,20 +1,14 @@
 # 老猫云官网地址
 
-laomaoyun最新地址：[laomao.biz](https://laomao.biz?path=register&code=tEkNT3sp)
+laomaoyun最新地址：[55laomao.com](https://55laomao.com?path=register&code=tEkNT3sp)
+
+备用地址：[66laomao.com](https://66laomao.com?path=register&code=tEkNT3sp)
 
 ## 简介
 
 老猫云，老牌服务商旗下分站（主站2017年，分站2年+），支持trojan协议，深圳移动，IEPL企业级内网专线，最高 1000Mbps 速率可用，99% SLA 保证，50+ 全球落地节点。
 
 老猫云官方专用客户端支持 windows、Android、MAC系统，简单方便，防止失联。
-
----
-
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
-
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
 
 ## 老猫云优惠码
 
